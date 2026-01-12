@@ -1,16 +1,23 @@
-## Hi there 👋
+<h6 align="center">
 
-<!--
-**nervynat/nervynat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![profileviews](https://komarev.com/ghpvc/?username=nervynat&style=plastic&color=82b6bf&label=Sillies)
 
-Here are some ideas to get you started:
+*i heart my boyfie* @soapiwan 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i'm autistic so pls use tonetags if you can GULP
+
+![](https://64.media.tumblr.com/27b21882a6dab4a70ca08a50491b8ebc/4e94a8eeded33b1f-2c/s100x200/3124072b629207ed7005e830c4f4c0785f4ea47f.pnj)
+![](https://64.media.tumblr.com/5b5fad3601f8e4d40f05aef40f7d07d8/4e94a8eeded33b1f-3c/s100x200/7d7728258e182b25030caade8c70d0dca91ba76b.pnj)
+
+
+![image](https://github.com/user-attachments/assets/08b550d5-3afa-4836-b00f-51bd33e2d0c4)
+
+
+
+![](https://64.media.tumblr.com/c8ddb177d023fd1776698d12f42389e3/61852014a512a949-ef/s400x600/c63130df6905c4a689946a030d37059c25c8fca7.pnj)
+
+dni basic dni criteria & dni if under 14 
+
+![](https://64.media.tumblr.com/cdd21b2827e83e9494f7bc659c4afb40/dce6445c99667a5f-01/s400x600/c1ab800ced8579168fc4f2925480aa00ec4767cb.gifv)
+
+![](https://64.media.tumblr.com/3ba0045fa9edc8defb1196397a3477bc/f5a0ca4d88c8c395-41/s400x600/9258b5f926eaec8843cb49cc5a509bb9e8313ed5.gifv)
