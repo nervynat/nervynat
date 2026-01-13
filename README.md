@@ -1,5 +1,9 @@
 <h6 align="center">
 
+<img width="267" height="163" alt="image" src="https://github.com/user-attachments/assets/ac171cec-f0fc-4f45-869c-a12f61fc0277" /> 
+
+![](https://64.media.tumblr.com/c8ddb177d023fd1776698d12f42389e3/61852014a512a949-ef/s400x600/c63130df6905c4a689946a030d37059c25c8fca7.pnj)
+
 ![profileviews](https://komarev.com/ghpvc/?username=nervynat&style=plastic&color=82b6bf&label=Sillies)
 
 *i heart my boyfie* @soapiwan 
