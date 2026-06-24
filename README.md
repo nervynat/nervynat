@@ -6,7 +6,7 @@
 
 ![profileviews](https://komarev.com/ghpvc/?username=nervynat&style=plastic&color=82b6bf&label=Sillies)
 
-*i heart my boyfie* @soapiwan 
+*feel free to int !*
 
 i'm autistic so pls use tonetags if you can GULP
 
